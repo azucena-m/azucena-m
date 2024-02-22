@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on anything! I am open to the idea of trying anything and everything, any topic is an opportunity for growth
 - 📫 How to reach me: you can get to know more about me and can contact me through LinkedIn at https://www.linkedin.com/in/azucena-marroquin/
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: I love to traverl and have quite the additiction to cruising. I also love to read for fun or for smarts ;)
+- ⚡ Fun fact: I love to travel and have quite the additiction to cruising. I also love to read for fun or for smarts ;)
 
 <!---
 azucena-m/azucena-m is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
