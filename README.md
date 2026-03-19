@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Azucena (@azucena-m)
 - 😄 Pronouns: She/Her
-- 🩺👩🏻‍💻 Registered Nurse/Programmer Analyst
+- 🩺👩🏻‍💻 Programmer Analyst/Registered Nurse
 
 
 <!---
